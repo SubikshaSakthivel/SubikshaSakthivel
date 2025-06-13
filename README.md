@@ -1,8 +1,6 @@
 Hi 👋, I'm Subiksha
 --------------------
-🔭 I’m Studing in KEC
-
-📚 I'm currently Pursuing MCA
+🔭 Enthusiatic and Optimistic learner 
 
 👀 I’m interested in learning advanced technology
 
